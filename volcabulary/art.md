@@ -1,0 +1,1 @@
+[1] Cursive (also known as script or longhand, among other names), is any style of penmanship in which some characters are written joined together in a flowing manner, generally for the purpose of making writing faster.

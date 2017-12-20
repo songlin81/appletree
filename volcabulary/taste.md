@@ -21,3 +21,7 @@
 [11] They are foie gras of the sea, indeed they are.﻿
 
 [12] P.S. I heard you both ordered a "tall" which is a small , so she didnt get it wrong, venti = large﻿
+
+[13] This is a communal kitchen, this means that there is one single table where about 10-12 people share a 10 course dinner.
+
+[14] A zesty palate full of flavour of limes and citrus with a tingle on the tongue.

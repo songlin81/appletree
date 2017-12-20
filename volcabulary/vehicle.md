@@ -19,3 +19,5 @@
 [10] Impeding the flow of traffic will get you not only road rage but a ticket. Either pick up the pace or stay home. Your kind are actually more dangerous than speeders.
 
 [11] I would say, manouvering-wise it is easier to drive in and back out, but that you are supposed to be taught how to back in before the driving test, so you can drive out and back in, which is safer assuming you can do it.
+
+[12] The interior boasts luxury accents including sanded silver aluminum inlays, white instrumentation lighting and a leather strap on the tailgate.

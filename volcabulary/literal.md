@@ -46,3 +46,28 @@ a person who disbelieves or lacks belief in the existence of God or gods. 
 
 [23] The school I am thinking about contracting with says I may not teach side-jobs without their permission. Is this common for ESL teacher contracts?﻿
 
+[24] Absurd comment. Instead of condemning violence you're saying "be respectful". So if someone isn't respectful, you think hacking them to death is acceptable? Which is worse?﻿
+
+[25] A shepherd was herding his flock in a remote pasture when suddenly a
+brand-new BMW advanced out of the dust cloud towards him. The driver, a
+young man in a Broni suit, Gucci shoes, Ray Ban sunglasses and YSL tie,
+leaned out the window and asked the shepherd... "If I tell you exactly how
+many sheep you have in your flock, will you give me one?" The shepherd
+looked at the man, obviously a yuppie, then looked at his peacefully
+grazing flock and calmly answered "sure".
+The yuppie parked his car, whipped out his IBM ThinkPad and connected it
+to a cell phone, then he surfed to a NASA page on the internet where he
+called up a GPS satellite navigation system, scanned the area, and then
+opened up a database and an Excel spreadsheet with complex formulas. He
+sent an email on his Blackberry and, after a few minutes, received a
+response. Finally, he prints out a 130-page report on his miniaturized
+printer then turns to the shepherd and says, "You have exactly 1586 sheep.
+"That is correct; take one of the sheep." said the shepherd. He watches
+the young man select one of the animals and bundle it into his car.
+Then the shepherd says: "If I can tell you exactly what your business is,
+will you give me back my animal?", "OK, why not." answered the young man.
+"Clearly, you are a consultant." said the shepherd. "That's correct." says
+the yuppie, "but how did you guess that?" "No guessing required." answers
+the shepherd. "You turned up here although nobody called you. You want to
+get paid for an answer I already knew, to a question I never asked, and
+you don't know crap about my business...... Now give me back my dog.”

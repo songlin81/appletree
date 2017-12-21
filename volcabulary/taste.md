@@ -78,7 +78,6 @@
     who typically works behind a counter, serving hot drinks (such as espresso), 
     cold alcoholic and non-alcoholic beverages, and snacks.
 
-
 [31] repellent
     You could plant one, but that doesn't mean you'll get much harvest from it.
     It can be killed by city pollution, stolen by neighbors, destroyed by neighborhood pets, or eaten by wildlife.

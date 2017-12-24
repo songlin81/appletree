@@ -21,3 +21,13 @@
 [11] I would say, manouvering-wise it is easier to drive in and back out, but that you are supposed to be taught how to back in before the driving test, so you can drive out and back in, which is safer assuming you can do it.
 
 [12] The interior boasts luxury accents including sanded silver aluminum inlays, white instrumentation lighting and a leather strap on the tailgate.
+
+[13] VIN
+    Identify the chassis number. 
+    Remember that the chassis number is made up of the last six digits of the VIN.
+
+[14] alternator
+    If you only get 14.2v when you rev it up and at idle it is at 12v that means your alternator is bad or your voltage regulator is bad (which is typically built into the alternator.
+
+[15] leniency
+    You are wasting your time fighting something you admit to You could ask for leniency.
